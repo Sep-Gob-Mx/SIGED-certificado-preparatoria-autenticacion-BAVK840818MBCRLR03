@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-BAVK840818MBCRLR03
+BAVK840818MBCRLR03
